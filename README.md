@@ -9,3 +9,19 @@ t jty tyjtyhjt ỵ
   vd fdb fb fg fg n
   f bfgb fgnb fg fgh 
   f bfg bfgb fg bfgb 
+dfbdf
+bd
+fbd
+fb
+dfb
+dfbd
+fb
+dfb
+df
+b
+dfb
+df
+bd
+f
+bf
+df
