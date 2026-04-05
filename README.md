@@ -4,12 +4,12 @@ ai day
 học đàn ?
 làm sao học bài
 sdvf dsvc dfv dfv
- dfvd
- fv dfv
- dfvdfvdfv
- dfv dfvdf
- vdf vdfv
-  dfvdfvdfv dfv
+ dfvdGF HM FGHM GFHM GFHM GFHM 
+ fv dfvGFH MGFHM GFHM GHFM GHFM GG
+ dfvdfvdfvF HMFGHM GHM FGFH MGHM GH MGFM HFG
+ dfv dfvdfGF MHGFHM GFHM GHM GFHM GFHM GFM
+ vdf vdfvGFHM FGHM GFHM GFHM GHM GHM GHM
+  dfvdfvdfv dfvFG MFGHM FGH FGMHM GM FG GFM
 svsdv sdv sdv sdv sdv sdv
 sdv sdv sdvsvsv sv sv sdv sdv 
 sv sdvsv sdv sv sv sv sdv sv sv 
